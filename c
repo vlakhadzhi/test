@@ -1,3 +1,0 @@
-ccccccc
-ccccccc
-ccccccc
